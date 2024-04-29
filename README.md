@@ -10,7 +10,7 @@ Here are some ideas to get you started:
 - 👯procuro colaborar nos estudos das pessoas
 - 🤔procuro ajudar meus colegas 
 - 💬 pergunte me sobre oque quiser descobrir sobre programaçoes 
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
+- 📫 alurastartestudante@email.com
+- 😄 ela/dela
+- ⚡nenhuma 
 -->
